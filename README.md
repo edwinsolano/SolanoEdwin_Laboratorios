@@ -1,1 +1,0 @@
-# SolanoEdwin_Laboratorios
